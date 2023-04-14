@@ -1,1 +1,1 @@
-# Integrative-Team-Project
+# Integrative Team Project
